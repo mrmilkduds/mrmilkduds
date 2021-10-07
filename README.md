@@ -1,0 +1,2 @@
+- Hey! I'm James
+- I'm currently an aerospace engineering student at the University of Alabama, looking for job opportunities in space exploration and missile technologies.
